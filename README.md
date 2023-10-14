@@ -1,4 +1,5 @@
-[b62ce6e83baa7ad2e64c4fd0c354dc71](https://github.com/sosaaz/sosaaz/assets/147911516/7cf5e888-f0b9-4adf-b54d-fc5c94343d86)
+
+![b62ce6e83baa7ad2e64c4fd0c354dc71](https://github.com/sosaaz/sosaaz/assets/147911516/45464380-3344-4524-b19d-77302f981b26)
 
 - 👋 Hi, I’m @sosaaz
 - 👀 I’m interested in ...
