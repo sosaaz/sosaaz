@@ -6,9 +6,9 @@
                           (˚ˎ 。7  
                            |、˜〵          
                           じしˍ,)ノ
-- My fav anime/fil/serie: Inazuma eleven ofc, Owl House, Sonic, Good Omens
-- Ineract in any way, C + H OFC, sit w me if you want :D
-- Don't have any friends in ponytown (im often offline)
+  - My fav anime/fil/serie: Inazuma eleven ofc, Owl House, Sonic, Good Omens
+  - Ineract in any way, C + H OFC, sit w me if you want :D
+  - Don't have any friends in ponytown (im often offline)
 
 <!---
 sosaaz/sosaaz is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
